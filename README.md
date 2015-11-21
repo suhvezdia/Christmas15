@@ -20,4 +20,6 @@
 
 [Watch](http://www.overstock.com/Jewelry-Watches/Skagen-Mens-SKW6217-Hagen-Black-Leather-Watch/10792847/product.html?refccid=GQDXLJEXSHI2OPSOPNZC5DMNZM&searchidx=194)
 
+[Wegmans Gift Cards](https://www.wegmans.com/webapp/wcs/stores/servlet/GiftCardsLandingView?storeId=10052&catalogId=10002&langId=-1)
 
+[Y3 Qasa White - Size 10](http://www.barneys.com/y-3-qasa-high-sneakers-504254522.html#prefn1=brand&prefn2=productAccess&prefv1=Y-3&prefv2=isPublic&start=0) - These are super expensive so if you don't want to get them it's cool haha

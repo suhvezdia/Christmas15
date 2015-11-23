@@ -22,4 +22,6 @@
 
 [Wegmans Gift Cards](https://www.wegmans.com/webapp/wcs/stores/servlet/GiftCardsLandingView?storeId=10052&catalogId=10002&langId=-1)
 
-[Y3 Qasa White - Size 10](http://www.barneys.com/y-3-qasa-high-sneakers-504254522.html#prefn1=brand&prefn2=productAccess&prefv1=Y-3&prefv2=isPublic&start=0) - These are super expensive so if you don't want to get them it's cool haha
+[Parka](http://www.asos.com/Native-Youth/Native-Youth-Parka-with-Faux-Fur-Hood/Prod/pgeproduct.aspx?iid=5328589&cid=12931&Rf-300=1848&Rf-200=4,16&sh=0&pge=1&pgesize=36&sort=-1&clr=Black&totalstyles=99&gridsize=3)
+
+Possibly look into getting a road bike.

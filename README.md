@@ -24,4 +24,12 @@
 
 [Parka](http://www.asos.com/Native-Youth/Native-Youth-Parka-with-Faux-Fur-Hood/Prod/pgeproduct.aspx?iid=5328589&cid=12931&Rf-300=1848&Rf-200=4,16&sh=0&pge=1&pgesize=36&sort=-1&clr=Black&totalstyles=99&gridsize=3)
 
-Possibly look into getting a road bike.
+[Settlers of Catan](http://www.amazon.com/Mayfair-Games-MFG-3071-Edition/dp/B00U26V4VQ/ref=sr_1_1?s=toys-and-games&ie=UTF8&qid=1448814265&sr=1-1&keywords=settlers+of+catan)
+
+[Settlers of Catan Expansion](http://www.amazon.com/Catan-5-6-Player-Extension-Edition/dp/B00U26V9CU/ref=pd_sim_21_1?ie=UTF8&dpID=51nfd-vXHPL&dpSrc=sims&preST=_AC_UL160_SR119%2C160_&refRID=0KMVPYC730FF5AQ5N5ET)
+
+[War of the Ring 2nd Edition](http://www.amazon.com/Ares-Games-AGS-WOTR001-Ring/dp/1903385113/ref=sr_1_1?s=toys-and-games&ie=UTF8&qid=1448814434&sr=1-1&keywords=war+of+the+ring+2nd+edition)
+
+[Forbidden Desert](http://www.amazon.com/Gamewright-415-Forbidden-Desert-Board/dp/B00B4ECHJI/ref=sr_1_1?s=toys-and-games&ie=UTF8&qid=1448814545&sr=1-1&keywords=forbidden+desert)
+
+[7 Wonders](http://www.amazon.com/Asmodee-SEV-EN01ASM-7-Wonders/dp/B0043KJW5M/ref=pd_sim_21_4?ie=UTF8&dpID=51bGMQnXdrL&dpSrc=sims&preST=_AC_UL160_SR160%2C160_&refRID=00PY54TWJFEK96B3121P)
